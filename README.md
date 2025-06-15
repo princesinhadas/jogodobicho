@@ -1,0 +1,2 @@
+# jogodobicho
+Palpites diários
